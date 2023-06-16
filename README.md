@@ -1,1 +1,1 @@
-"Cria‡Æo de interface para projeto de Empreendedorismo e transforma‡Æo digital" 
+Criaâ€¡Ã†o de interface para projeto de Empreendedorismo e transformaâ€¡Ã†o digital
